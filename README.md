@@ -9,7 +9,7 @@ In this portfolio you will find :
 - My resume
 - My project fields 
 
-Looking forword for you comments and feedbacks!
+Looking forward to your comments and feedback!
 
 Link: https://wajih24.github.io/Wajih_Portfolio/
 
